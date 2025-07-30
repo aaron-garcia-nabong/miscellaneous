@@ -1,2 +1,2 @@
-# miscellaneous
-A collection of miscellaneous items.
+# Miscellaneous
+Here are a collection of miscellaneous items.
