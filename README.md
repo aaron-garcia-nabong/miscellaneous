@@ -4,6 +4,7 @@ Here is a collection of miscellaneous things, sorted by month.
 ## August 2025
 + [The Beauty Of Drive My Car](https://youtu.be/Q18dftUZuqM?feature=shared)
 + [Training like Mishima for 7 Days](https://youtu.be/Q18dftUZuqM?feature=shared)
++ [Joe Rogan Experience #2275 - Magnus Carlsen](https://youtu.be/ybuJ_nIXwGE?feature=shared)
 
 ## July 2025
 + [Fields Medal: June Huh](https://youtu.be/yO8lQWb6TZ4?feature=shared)
