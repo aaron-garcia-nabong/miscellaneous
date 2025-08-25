@@ -8,7 +8,7 @@ Here is a collection of miscellaneous things, sorted by month.
 + [Unlocking Your Intuition: How to Solve Hard Problems Easily](https://youtu.be/1f6N2UrCK6o?feature=shared)
 + [Focusing Your Unconscious Mind: Learn Hard Concepts Intuitively (And Forever)](https://youtu.be/Dm68uFy6gus?feature=shared)
 + [How To Awaken & Enhance Your Analytical Problem-Solving Mind](https://youtu.be/-jmxvq0rF9o?feature=shared)
-+ [How to Train Yourself to Visualise Anything(6 Simple Tips & Habits)](https://youtu.be/p4xFVJTyJZg?feature=shared)
++ [How to Train Yourself to Visualise Anything (6 Simple Tips & Habits)](https://youtu.be/p4xFVJTyJZg?feature=shared)
 + [3-Minute Hack to Take Control of Your Subconscious](https://youtu.be/zHECSAdJjTQ?feature=shared)
 
 ## July 2025
